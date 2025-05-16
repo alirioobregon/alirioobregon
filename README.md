@@ -1,4 +1,3 @@
-![avatar_1](https://github.com/user-attachments/assets/9e58b334-129a-4894-a6a6-2b090fdddbd5)
 
 ## Hi there 👋
 
